@@ -1,1 +1,1 @@
-# [Forums](mcpuppy.github.io)
+# [Forums](https://mcpuppy.github.io)
